@@ -1,4 +1,4 @@
-口令：lsjsqyyds
+口令：lsjsqyyds  
 兑换方式第一种：打开 雷神加速器 客户端 
 进入CDKEY兑换页输入口令【lsjsqyyds】免费领取加速时长卡
 
