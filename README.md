@@ -4,7 +4,7 @@
 
 第二种：网址：https://www.leigod.com/activitys/exchangeWordOfCommand.html 注册输入口令（lsjsqyyds）即可兑换
 
-好不好用试试就知道！
+好不好用试试就知道！！  
 
 <!--
 **abandonall/abandonall** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
